@@ -25,8 +25,10 @@ Q1：91吃瓜网是什么网站？
 
 Q2：91吃瓜网官方网站是哪个？
 
-最新免翻墙地址：https://91vip12.com/
 永久地址：https://91cg1.com/
+
+最新免翻墙地址：https://91vip12.com/
+
 建议使用 Chrome、Yandex、Safari 或夸克浏览器访问。
 
 Q3：网站内容更新频率如何？
